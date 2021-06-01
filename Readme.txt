@@ -1,2 +1,1 @@
-Manhar Khurana's Portfolio
-https://khurananmanhar.github.io/khuranamanhar-/
+Hello! I'm Manhar! I enjoy working as part of a team. I am a person who is outgoing, committed, and open-minded. I'm excellent at interacting with others and responding to changes. I believe that people should continually focus on enhancing their technical skills and learning new things. This Is my Personal Portfolio: https://khurananmanhar.github.io/khuranamanhar-/
